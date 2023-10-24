@@ -1,16 +1,20 @@
-### Hi there 👋
+Hola meu nome é gabriel duda e bem vindo a o meu perfil
 
-<!--
-**gabriel13duda99/gabriel13duda99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- estou estudando
+- eu sou otako
+- quero estudar programasão pela segunda ves
+- tou aproveitando a vida
 
-Here are some ideas to get you started:
+### entrar en comtato comigo 📫
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+gabriel.duda14@escila.pr.gov.br
+
+![](https://media.tenor.com/pb5h8zDewCAAAAAd/naruto.gif)
+
+![](https://media.tenor.com/1VAcp4uX7IEAAAAM/goku.gif)
+
+![](https://media.tenor.com/nB29b_vhwDgAAAAd/luffy-gear-5.gif)
+
+### escolha um 
+
+![](https://media.tenor.com/meGAjFhKCNwAAAAC/dragon-ball-naruto.gif)
